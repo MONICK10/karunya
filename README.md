@@ -1,1 +1,1 @@
-karunya arise and shine
+karunya arise
